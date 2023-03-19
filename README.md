@@ -1,5 +1,3 @@
-
-
 ### 🔥 SKAL 🔥
 
 Sou Mário Gilson.
